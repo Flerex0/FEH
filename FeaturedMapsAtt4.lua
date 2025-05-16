@@ -1,1 +1,1 @@
-Snowy Frost~Primordial Typhoon~Mushroosia Entryway~
+Cerebral Electric~Spring Valley~Lost City of Gold~
