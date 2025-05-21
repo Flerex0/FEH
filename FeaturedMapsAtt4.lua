@@ -1,1 +1,1 @@
-The Hearts of Wonderland~Fiery Depths~Undersea Facility~
+The Heart of Wonderland~Fiery Depths~Undersea Facility~
