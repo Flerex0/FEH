@@ -1,1 +1,1 @@
-Exhile~Dystopian Outpost~The Beast I Worship~
+Crazy!~Collapsing Institution~Cerebral Electric~
